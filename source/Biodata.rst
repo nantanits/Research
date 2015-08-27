@@ -6,7 +6,7 @@ Biodata
 
 .. figure:: images/Nantanit.jpg
    :alt: Nantanit Sutthiruk 
-   :scale: 25 %
+   :scale: 25%
    :align: center
    
    **Nantanit Sutthiruk**
