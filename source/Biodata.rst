@@ -48,6 +48,29 @@ Professional Career
 
 		*Lecturer of Fundamental Nursing*, Department Faculty of Medicine, Ramathibodi School of Nursing, Mahidol University, Bangkok, Thailand
 		
+Extra Curricular Activities
+---------------------------
+
+**2009**
+
+	Relationships between Internal Locus of Control, Job Characteristics, Supervision Management of Head Nurses and Nosocomial Infection and Control Behaviors of Staff Nurses in University Hospitals, a Master of Nursing Science Thesis (2009) (*Thai Journal of Nursing Council Vol.4 No.2 April-June 2009*)
+
+**2010-2011** 
+
+	Field Research for Community Health Education and Promotion in Rural Areas (in process of publication)
+	
+**2011**
+
+	Public Health & Humanitarian Services during the mega flood relief operations in lower basins of central Thailand (October - December 2011), 2012-2013 Urinary Catheterization Teaching Media CAI Development (in process of publication)
+
+Professional Membership
+-----------------------
+
+**2012-2017**
+
+		*Registered Professional Nurse* (Thailand Nursing Council)
+
+		
 Contact
 --------
 
