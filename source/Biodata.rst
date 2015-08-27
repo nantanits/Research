@@ -5,7 +5,7 @@ Biodata
 =======
 
 2014 - Present
-		Ph.D. Candidate, Faculty of Health, School of Nursing & Midwifery, Deakin University 
+		Ph.D. Candidate, Faculty of Health, School of Nursing & Midwifery, Deakin University, Melbourne, Australia.
 
 Educational Backgrounds
 -----------------------
