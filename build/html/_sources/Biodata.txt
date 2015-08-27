@@ -5,7 +5,7 @@ Biodata
 =======
 
 2014 - Present
-		Ph.D. Candidate, Faculty of Health, School of Nursing & Midwifery, Deakin University 
+		Ph.D. Candidate, Faculty of Health, School of Nursing & Midwifery, Deakin University, Melbourne, Australia.
 
 Educational Backgrounds
 -----------------------
@@ -34,4 +34,9 @@ Professional Training
 2009-2013
 
 		Lecturer of Fundamental Nursing Department Faculty of Medicine, Ramathibodi School of Nursing, Mahidol University, Bangkok, Thailand
+		
+Contact
+--------
+
+	`e-mail: nsutthir@deakin.deakin.edu.au <nsutthir@deakin.deakin.edu.au>`_
 		

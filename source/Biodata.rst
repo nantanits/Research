@@ -35,3 +35,8 @@ Professional Training
 
 		Lecturer of Fundamental Nursing Department Faculty of Medicine, Ramathibodi School of Nursing, Mahidol University, Bangkok, Thailand
 		
+Contact
+--------
+
+	`e-mail: nsutthir@deakin.deakin.edu.au <nsutthir@deakin.deakin.edu.au>`_
+		
