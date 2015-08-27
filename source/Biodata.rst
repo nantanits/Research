@@ -38,5 +38,5 @@ Professional Training
 Contact
 --------
 
-	`e-mail: nsutthir@deakin.deakin.edu.au <nsutthir@deakin.deakin.edu.au>`_
+	`nsutthir@deakin.deakin.edu.au <nsutthir@deakin.deakin.edu.au>`_
 		
